@@ -6,7 +6,7 @@ https://github.com/user-attachments/assets/0e1cb8ae-3f3c-4bed-93b5-c5158a0d1c7c
 
 We’re thrilled to share with you the official intro of our new mobile game!
 
-𝗙𝗢𝗥 𝗜𝗢𝗦: https://apps.apple.com/us/app/gapsec-stories/id6736394770
+𝗙𝗢𝗥 𝗜𝗢𝗦: (It is currently in the testing phase). 𝐒𝐭𝐚𝐲 𝐓𝐮𝐧𝐞𝐝! 🎯
 
 𝗙𝗢𝗥 𝗔𝗡𝗗𝗥𝗢𝗜𝗗: (It is currently in the testing phase). 𝐒𝐭𝐚𝐲 𝐓𝐮𝐧𝐞𝐝! 🎯
 
